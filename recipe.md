@@ -1,0 +1,1 @@
+Add curd, ginger garlic paste, chilli powder, salt, turmeric, pepper powder & chopped curry leaves (optional) to a mixing bowl. Mix & taste it. Add more salt if needed. Then stir in the cubed boneless chicken. Mix well. Sprinkle the dry flour over the marinade. If you chose to use egg, you can add it now.
